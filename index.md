@@ -1,9 +1,9 @@
-## Tom en Manon
+### Tom en Manon
 Tijdens de Top2000 van 2021 stuurde Manon een vraag wie er met haar wilde trouwen. Hier waren veel reacties op, maar uiteindelijk koos Manon Tom uit. We proberen nu Tom te vinden om Tom en Manon in real-life te koppelen!
 
 ![Manon?](manon.jpg)
 
-### Ben jij Tom, of geinteresseerd in de bruiloft?
+## Ben jij Tom, of geinteresseerd in de bruiloft?
 Join dan [deze](https://chat.whatsapp.com/CqvGxpvIVPmGAjcn5hSHoT) Whatsapp groep
 
 
