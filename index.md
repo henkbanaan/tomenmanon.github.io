@@ -6,6 +6,6 @@ Join dan [deze](https://chat.whatsapp.com/CqvGxpvIVPmGAjcn5hSHoT) Whatsapp groep
 
 ### Overig 
 Is dit Manon?
-[Manon?](manon.jpg)
+![Manon?](manon.jpg)
 
 <iframe width="420" height="315" src="https://www.youtube.com/watch?v=ri1f5e8KmFE" frameborder="0" allowfullscreen></iframe>
